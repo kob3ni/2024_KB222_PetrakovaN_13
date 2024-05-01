@@ -1,0 +1,1 @@
+http://blog.kislenko.net/show.php?id=2471
